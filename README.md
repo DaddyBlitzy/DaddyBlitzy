@@ -8,7 +8,7 @@ im a **proshipper**, though i dont ship anything crazy or taboo, i am simply ant
 
 you'll usually find me around the docks, but im usually under the protree with my friends.
 
-i also feel like i should put this here, i do not support dark/comshippers, but i DO respect them. they are human beings just like the rest of us and are just trying to cope with everyday issues. before you resort to harassment, think of the person behind the screen. see them for who they are as a person and not for what they engage in, most of them are the sweetest people of the planet. /vpos
+i also feel like i should put this here, i do not support dark/comshippers, but i DO respect them. they are human beings just like the rest of us and are just trying to cope with everyday issues. before you resort to harassment, think of the person behind the screen. see them for who they are as a person and not for what they engage in, most of them are the sweetest people on the planet. /vpos
 
 my current safe friends/people (i love you all so much!) : @runr4bb , @p0staldud3 , @1STR3SS , @B0MBTHR3AT , and everyone else at the protree! <3
 
