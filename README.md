@@ -4,7 +4,7 @@ hey guys wsg it's your local freak elliot, heads up this will be super fucking b
 
 im currently taken by the love of my life and future husband, so please, no flirting with me unless youre him.
 
-im a +**proshipper***, though i dont ship anything crazy or taboo, i am simply anti-harassment, so please dont harass me over not giving a fuck what other people do.
+im a **proshipper**, though i dont ship anything crazy or taboo, i am simply anti-harassment, so please dont harass me over not giving a fuck what other people do.
 
 you'll usually find me around the docks, but im usually under the protree with my friends.
 
@@ -13,3 +13,5 @@ i also feel like i should put this here, i do not support dark/comshippers, but 
 my current safe friends/people (i love you all so much!) : @runr4bb , @p0staldud3 , @1STR3SS , @B0MBTHR3AT , and everyone else at the protree! <3
 
 remember, im always here to help if you need to vent, this includes to everyone! ill try to help as best as i can :]
+
+baii!! please remember to check out my strawpages and sign my ata before you go!
