@@ -15,3 +15,5 @@ our current safe friends/people (i love you all so much!) : @runr4bb , @p0staldu
 remember, we are always here to help if you need to vent, this includes to everyone! we'll try to help as best as we can :]
 
 baii!! please remember to check out our strawpages and sign our ata before you go!
+
+written by elliot (host)
