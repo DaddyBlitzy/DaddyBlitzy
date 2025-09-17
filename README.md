@@ -6,13 +6,19 @@ we are currently taken by the love of our lives and future husband, so please, n
 
 only ONE of our alters does not play pony town, and that is red. so you unfortunately may not see her unless you ask to meet/chat to her!
 
+unfortunately, due to dogpiling from our ex "friends", we will not link any atabooks nor gimmicks in strawpages. we **are** however in the works of making a strawpage letting you learn more about our system!
+
 we are all **proshippers**, though we dont ship anything crazy or taboo, we are simply anti-harassment, so please dont harass us over not giving a fuck what other people do.
 
 you'll usually find us around the docks, but we are usually under the protree with our friends.
 
 i also feel like i should put this here, we do not support dark/comshippers, but we DO respect them. they are human beings just like the rest of us and are just trying to cope with everyday issues. before you resort to harassment, think of the person behind the screen. see them for who they are as a person and not for what they engage in, most of them are the sweetest people on the planet. /vpos
 
-our current safe friends/people (i love you all so much!) : @runr4bb , @p0staldud3 , @1STR3SS , @B0MBTHR3AT , and everyone else at the protree! <3
+OSDD-1b System (no, i do not inherently enjoy being plural. yes, sometimes its nice, but i want my body back sometimes. discovering that you are plural is very draining and scary, it's not all sunshine and rainbows.)
+
+remember, just because we aren't officially diagnosed **yet** does not make us any less valid! we are still bodily a minor and find it difficult to talk to our parents about our system. being a system ≠ DID, being a system/plural is not limited to DID.
+
+our current safe friends/people (we love you all so much!) : @runr4bb , @p0staldud3 , @1STR3SS , @B0MBTHR3AT , and everyone else at the protree! <3
 
 remember, we are always here to help if you need to vent, this includes to everyone! we'll try to help as best as we can :]
 
