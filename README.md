@@ -6,9 +6,6 @@ we are currently taken by the love of our lives and future husband, so please, n
 
 only ONE of our alters does not play pony town, and that is red. so you unfortunately may not see her unless you ask to meet/chat to her!
 
-unfortunately, due to dogpiling from our ex "friends", we will not link any atabooks nor gimmicks in strawpages. (no guys, you didnt win just because i deleted it lol) we **are** however in the works of making a strawpage letting you learn more about our system!
-
-adding onto the paragraph above, **PLEASE** for the love of GOD DNI ex friends. i BEG of you. you have all ruined me mentally and made me suicidal. im not denying that i did some bad things too, but continuing the issue is just disgusting to me. please stay away, respectfully. /vsrs.
 
 we are all **proshippers**, though we dont ship anything crazy or taboo, we are simply anti-harassment, so please dont harass us over not giving a fuck what other people do.
 
