@@ -1,5 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=thepluralecosystem&color=green)
 
+
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&redirect=true)
 
 hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are the plural ecosystem. heads up this will be super fucking boring bc i dont feel like putting effort into it
