@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?usernamethepluralecosystem&color=green)
+![](https://komarev.com/ghpvc/?username=thepluralecosystem&color=green)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&redirect=true)
 
