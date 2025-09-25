@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=thepluralecosystem&label=creepy+ass+stalkers) < lowkey scary how fast ts is going up... dawg ya'll r obsessive holy moly -Saffron (Gatekeeper)
+![](https://komarev.com/ghpvc/?username=thepluralecosystem&label=creepy+ass+stalkers) < lowkey scary how fast ts is going up... dawg ya'll r obsessive holy moly [not targeted to strangers btw... <3] -Saffron (Gatekeeper)
 
 
 
