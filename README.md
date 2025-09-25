@@ -10,6 +10,9 @@ we are currently taken by the love of our lives and future husband, so please, n
 
 only ONE of our alters does not play pony town, and that is red. so you unfortunately may not see her unless you ask to meet/chat to her!
 
+special interest(s) spanning across everyone in the system: **Nintendo**
+
+current hyperfixation(s), again, spanning across the entire system: **Splatoon**
 
 we are all **proshippers**, though we dont ship anything crazy or taboo, we are simply anti-harassment, so please dont harass us over not giving a fuck what other people do.
 
@@ -21,7 +24,7 @@ OSDD-1b System (no, i do not inherently enjoy being plural. yes, sometimes its n
 
 remember, just because we aren't officially diagnosed **yet** does not make us any less valid! we are still bodily a minor and find it difficult to talk to our parents about our system. being a system ≠ DID, being a system/plural is not limited to DID.
 
-our current safe friends/people (we love you all so much!) : @runr4bb , @p0staldud3 , @1STR3SS , @B0MBTHR3AT , and everyone else at the protree! <3
+our current safe friends/people (we love you all so much!) : @runr4bb , @p0staldud3 , and everyone else at the protree! we love ya'll!!! <3
 
 remember, we are always here to help if you need to vent, this includes to everyone! we'll try to help as best as we can :]
 
