@@ -12,7 +12,7 @@ only ONE of our alters does not play pony town, and that is red. so you unfortun
 
 special interest(s) spanning across everyone in the system: **Nintendo**
 
-current hyperfixation(s), again, spanning across the entire system: **Splatoon**
+current hyperfixation(s), again, spanning across the entire system: **Hannibal**
 
 we are all **proshippers**, though we dont ship anything crazy or taboo, we are simply anti-harassment, so please dont harass us over not giving a fuck what other people do.
 
