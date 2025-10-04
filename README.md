@@ -4,6 +4,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&redirect=true)
 
+![image](https://github.com/user-attachments/assets/67145766-0c71-4026-b294-e5b4605c83ff)
+ME AND ROMAN!! ART BY ROMAN/MY GORGEOUS BF <3 (I LOVE YOU SWEETHEART SMOOCHES AGGRESSIVELY)
+
 hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are the plural ecosystem. heads up this will be super fucking boring bc i dont feel like putting effort into it
 
 we are currently taken by the love of our lives and future husband, so please, no flirting with us unless youre him.
