@@ -9,7 +9,9 @@
 
 ME AND ROMAN!! ART BY ROMAN/MY GORGEOUS BF <3 (I LOVE YOU SWEETHEART SMOOCHES AGGRESSIVELY)
 
-hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are the plural ecosystem. heads up this will be super fucking boring bc i dont feel like putting effort into it
+![17612638179247837363780314566245](https://github.com/user-attachments/assets/7352ea54-46a6-4f34-a150-090d74f6f1ed)
+
+hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are the kong studios collective/system. heads up this will be super fucking boring bc i dont feel like putting effort into it
 
 we are currently taken by the love of our lives and future husband, so please, no flirting with us unless youre him.
 
