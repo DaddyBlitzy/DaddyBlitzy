@@ -16,6 +16,8 @@ hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are th
 
 we are currently taken by the love of our lives and future husband, so please, no flirting with us unless youre him.
 
+**ANNIVERSARY COUNTDOWN FOR ME & HIM :** https://howlongagogo.com/date/2025/september/9
+
 only ONE of our alters does not play pony town, and that is red. so you unfortunately may not see her unless you ask to meet/chat to her!
 
 ![17612642101052703026909706545705](https://github.com/user-attachments/assets/aed1c13f-c0ca-4bb8-8c28-ac08c6b22852)![17612642101052703026909706545705](https://github.com/user-attachments/assets/c35d031f-cd46-45ab-a987-671598803ac7)![17612642101052703026909706545705](https://github.com/user-attachments/assets/c1117393-0cca-4743-9591-76ffbdf07a34)![17612642101052703026909706545705](https://github.com/user-attachments/assets/0bb356a6-a293-40d4-91f1-26654155a99c)
