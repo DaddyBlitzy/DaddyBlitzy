@@ -38,7 +38,7 @@ OSDD-1b System (no, i do not inherently enjoy being plural. yes, sometimes its n
 
 remember, just because we aren't officially diagnosed **yet** does not make us any less valid! we are still bodily a minor and find it difficult to talk to our parents about our system. being a system ≠ DID, being a system/plural is not limited to DID.
 
-our current safe friends/people (we love you all so much!) : @runr4bb , @p0staldud3 , and everyone else at the protree! we love ya'll!!! <3
+our current safe friends/people (we love you all so much!) : @p0staldud3 (our husband!) , and everyone else at the protree! we love ya'll!!! <3
 
 remember, we are always here to help if you need to vent, this includes to everyone! we'll try to help as best as we can :]
 
