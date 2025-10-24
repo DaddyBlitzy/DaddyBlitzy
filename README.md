@@ -32,7 +32,7 @@ you'll usually find us around the docks, but we are usually under the protree wi
 
 i also feel like i should put this here, we do not support dark/comshippers, but we DO respect them. they are human beings just like the rest of us and are just trying to cope with everyday issues. before you resort to harassment, think of the person behind the screen. see them for who they are as a person and not for what they engage in, most of them are the sweetest people on the planet. /vpos
 
-![17612643517601809687524858973162](https://github.com/user-attachments/assets/6393c670-3181-4dde-85d8-235e545884ae)![17612643517601809687524858973162](https://github.com/user-attachments/assets/c79a3ea8-ce11-4b30-9b22-0726b3c79315)![17612643517601809687524858973162](https://github.com/user-attachments/assets/6cb3c086-c28b-4147-9b7a-646899cc5930)
+![17612643517601809687524858973162](https://github.com/user-attachments/assets/6393c670-3181-4dde-85d8-235e545884ae)![17612643517601809687524858973162](https://github.com/user-attachments/assets/c79a3ea8-ce11-4b30-9b22-0726b3c79315)
 
 OSDD-1b System (no, i do not inherently enjoy being plural. yes, sometimes its nice, but i want my body back sometimes. discovering that you are plural is very draining and scary, it's not all sunshine and rainbows.)
 
