@@ -5,7 +5,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&redirect=true)
 
 ![image](https://github.com/user-attachments/assets/67145766-0c71-4026-b294-e5b4605c83ff)
-![17612640027518479083692611821398](https://github.com/user-attachments/assets/40a2510d-99db-4651-a03e-34cc8aee0ad9)
+![17612640027518479083692611821398](https://github.com/user-attachments/assets/40a2510d-99db-4651-a03e-34cc8aee0ad9)![17612640027518479083692611821398](https://github.com/user-attachments/assets/40a2510d-99db-4651-a03e-34cc8aee0ad9)![17612640027518479083692611821398](https://github.com/user-attachments/assets/40a2510d-99db-4651-a03e-34cc8aee0ad9)
 ![image](https://github.com/user-attachments/assets/8e67c730-e047-402e-bd1d-f7c2262fa965)
 
 ME AND ROMAN!! ART BY ROMAN/MY GORGEOUS BF <3 (I LOVE YOU SWEETHEART SMOOCHES AGGRESSIVELY)
