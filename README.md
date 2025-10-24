@@ -14,7 +14,7 @@ ME AND ROMAN!! ART BY ROMAN/MY GORGEOUS BF <3 (I LOVE YOU SWEETHEART SMOOCHES AG
 
 hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are the kong studios collective/system. heads up this will be super fucking boring bc i dont feel like putting effort into it
 
-we are currently taken by the love of our lives and future husband, so please, no flirting with us unless youre him.
+we are currently taken by the love of our lives and future husband roman, so please, no flirting with us unless youre him.
 
 **ANNIVERSARY COUNTDOWN FOR ME & HIM :** https://howlongagogo.com/date/2025/september/9
 
