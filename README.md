@@ -16,13 +16,15 @@ hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are th
 
 we are currently taken by the love of our lives and future husband, so please, no flirting with us unless youre him.
 
-![17612639648374670520579943382007](https://github.com/user-attachments/assets/4566bed1-0803-42bb-9760-782841ce03ec)
-
 only ONE of our alters does not play pony town, and that is red. so you unfortunately may not see her unless you ask to meet/chat to her!
+
+![17612642101052703026909706545705](https://github.com/user-attachments/assets/aed1c13f-c0ca-4bb8-8c28-ac08c6b22852)![17612642101052703026909706545705](https://github.com/user-attachments/assets/c35d031f-cd46-45ab-a987-671598803ac7)![17612642101052703026909706545705](https://github.com/user-attachments/assets/c1117393-0cca-4743-9591-76ffbdf07a34)![17612642101052703026909706545705](https://github.com/user-attachments/assets/0bb356a6-a293-40d4-91f1-26654155a99c)
 
 special interest(s) spanning across everyone in the system: **Nintendo**
 
 current hyperfixation(s), again, spanning across the entire system: **Gorillaz**
+
+![17612640712877876169778802906301](https://github.com/user-attachments/assets/58e22d90-4f33-4d39-a623-19bfad35dee4)
 
 we are all **proshippers**, though we dont ship anything crazy or taboo, we are simply anti-harassment, so please dont harass us over not giving a fuck what other people do.
 
