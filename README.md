@@ -46,7 +46,7 @@ remember, just because we aren't officially diagnosed **yet** does not make us a
 
 ![17612658889428594854344177079894](https://github.com/user-attachments/assets/b5c84cfe-0c70-4c99-bab7-788530fbd33d)
 
-our current safe friends/people (we love you all so much!) : @p0staldud3 (our husband!) , and everyone else at the protree! we love ya'll!!! <3
+our current safe friends/people (we love you all so much!) : @p0staldud3 (our husband!) , @ThESuNiSDYiNG , @datariker , @Micheal-Afton1983 , @greenbeanx3 , @PrettyCherub (and their alters ofc!) , and everyone else at the protree! we love ya'll!!! <3
 
 remember, we are always here to help if you need to vent, this includes to everyone! we'll try to help as best as we can :]
 
