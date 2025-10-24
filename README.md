@@ -49,6 +49,6 @@ remember, we are always here to help if you need to vent, this includes to every
 baii!! please remember to check out our strawpages before you go!
 
 ![17612653224339215782501636962597](https://github.com/user-attachments/assets/da38fceb-d1ee-46bc-a640-80a75c409b3e)![17612653776676575713491507733121](https://github.com/user-attachments/assets/74e34241-53bd-4f4d-bcef-da2133389653)
-
+^ Me and Roman btw... if yall even care ^
 
 ~ Written by the host, Elliot.
