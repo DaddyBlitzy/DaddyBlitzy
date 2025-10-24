@@ -34,7 +34,9 @@ we are all **proshippers**, though we dont ship anything crazy or taboo, we are 
 
 you'll usually find us around the docks, but we are usually under the protree with our friends.
 
-i also feel like i should put this here, we do not support dark/comshippers, but we DO respect them. they are human beings just like the rest of us and are just trying to cope with everyday issues. before you resort to harassment, think of the person behind the screen. see them for who they are as a person and not for what they engage in, most of them are the sweetest people on the planet. /vpos
+i also feel like i should put this here, we do not support darkshippers, but we DO respect them. they are human beings just like the rest of us and are just trying to cope with everyday issues. before you resort to harassment, think of the person behind the screen. see them for who they are as a person and not for what they engage in, most of them are the sweetest people on the planet. /vpos
+
+also adding in, i will not be responding nor giving any form of attention to ex friends. i would rather not give them the time of my day especially if they ruined me mentally. i am attempting to move on, as should you. remember that spread false rumors about someone due to the hatred you have for them is very self centered and youre technically victimizing yourselves. if you were so sure of what you were spouting and 100% confident that what you were saying was true, you wouldnt be anonymously sending this stuff. reminder; doing this sort of stuff can land you in deep trouble. i was recommended by close irl family to get police involved. i dont want to resort to that, so please fuck off and let me live my life. im not interacting with you, you should respect my dni if im respecting yours. its getting hypocritical atp. lastly, going lengths to making ALT accounts to tell me im "a disgusting human" for what? not harassing people? sure, not being a dick SUREEE is disgusting bud. grow **up**. they people harassing me are older than me, and should be more mature than me. quit playing the victim, yall! im  just existing, im done attempting to defend myself. thanks for coming to my tedtalk... /silly
 
 ![17612643517601809687524858973162](https://github.com/user-attachments/assets/6393c670-3181-4dde-85d8-235e545884ae)![17612643517601809687524858973162](https://github.com/user-attachments/assets/c79a3ea8-ce11-4b30-9b22-0726b3c79315)
 
@@ -42,7 +44,7 @@ OSDD-1b System (no, i do not inherently enjoy being plural. yes, sometimes its n
 
 remember, just because we aren't officially diagnosed **yet** does not make us any less valid! we are still bodily a minor and find it difficult to talk to our parents about our system. being a system ≠ DID, being a system/plural is not limited to DID.
 
-<div class="tenor-gif-embed" data-postid="6153747201224854170" data-share-method="host" data-aspect-ratio="1.76596" data-width="100%"><a href="https://tenor.com/view/divider-gif-6153747201224854170">Divider Sticker</a>from <a href="https://tenor.com/search/divider-stickers">Divider Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![17612658889428594854344177079894](https://github.com/user-attachments/assets/b5c84cfe-0c70-4c99-bab7-788530fbd33d)
 
 our current safe friends/people (we love you all so much!) : @p0staldud3 (our husband!) , and everyone else at the protree! we love ya'll!!! <3
 
