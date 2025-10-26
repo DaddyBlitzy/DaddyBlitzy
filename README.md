@@ -22,7 +22,7 @@ only ONE of our alters does not play pony town, and that is red. so you unfortun
 
 ![17612642101052703026909706545705](https://github.com/user-attachments/assets/aed1c13f-c0ca-4bb8-8c28-ac08c6b22852)![17612642101052703026909706545705](https://github.com/user-attachments/assets/c35d031f-cd46-45ab-a987-671598803ac7)![17612642101052703026909706545705](https://github.com/user-attachments/assets/c1117393-0cca-4743-9591-76ffbdf07a34)![17612642101052703026909706545705](https://github.com/user-attachments/assets/0bb356a6-a293-40d4-91f1-26654155a99c)
 
-special interest(s) spanning across everyone in the system: **Nintendo**
+special interest(s) spanning across everyone in the system: **Nintendo**, **Gorillaz**
 
 current hyperfixation(s), again, spanning across the entire system: **Gorillaz**
 
