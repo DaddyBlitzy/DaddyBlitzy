@@ -8,7 +8,7 @@
 
 hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are the kong studios collective/system. heads up this will be super fucking boring bc i dont feel like putting effort into it
 
-uhhhh we are currently single and not looking for a relationship!! honestly i think i need to mature and fix my mental health before i go into anything serious because uhh... yeah thanks! only dating fictional characters rn (ilysfm murdoc)
+uhhhh we are currently single and not looking for a relationship!! honestly i think i need to mature and fix my mental health before i go into anything serious because uhh... yeah i did kind of feel attached and its hard for me to leave people alone so... yeah im genuinely sorry. thanks! only dating fictional characters rn (ilysfm murdoc)
 
 only ONE of our alters does not play pony town, and that is red. so you unfortunately may not see her unless you ask to meet/chat to her!
 
