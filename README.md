@@ -2,21 +2,13 @@
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&redirect=true)
-
-
-![17612640027518479083692611821398](https://github.com/user-attachments/assets/40a2510d-99db-4651-a03e-34cc8aee0ad9)
-![image](https://github.com/user-attachments/assets/8e67c730-e047-402e-bd1d-f7c2262fa965)
-
-ME AND ROMAN!! ART BY ROMAN/MY GORGEOUS BF <3 (I LOVE YOU SWEETHEART SMOOCHES AGGRESSIVELY)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31gso7f2p4lrmgghgzyc5asyl6am&redirect=
 
 ![17612638179247837363780314566245](https://github.com/user-attachments/assets/7352ea54-46a6-4f34-a150-090d74f6f1ed)
 
 hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are the kong studios collective/system. heads up this will be super fucking boring bc i dont feel like putting effort into it
 
-we are currently taken by the love of our lives and future husband roman, so please, no flirting with us unless youre him.
-
-**ANNIVERSARY COUNTDOWN FOR ME & HIM :** https://howlongagogo.com/date/2025/september/9
+uhhhh we are currently single and not looking for a relationship!! honestly i think i need to mature and fix my mental health before i go into anything serious because uhh... yeah thanks! only dating fictional characters rn (ilysfm murdoc)
 
 only ONE of our alters does not play pony town, and that is red. so you unfortunately may not see her unless you ask to meet/chat to her!
 
@@ -46,7 +38,7 @@ remember, just because we aren't officially diagnosed **yet** does not make us a
 
 ![17612658889428594854344177079894](https://github.com/user-attachments/assets/b5c84cfe-0c70-4c99-bab7-788530fbd33d)
 
-our current safe friends/people (we love you all so much!) : @p0staldud3 (our husband!) , @ThESuNiSDYiNG , @datariker , @Micheal-Afton1983 , @greenbeanx3 , @PrettyCherub (and their alters ofc!) , and everyone else at the protree! we love ya'll!!! <3
+our current safe friends/people (we love you all so much!) : @ThESuNiSDYiNG , @datariker , @Micheal-Afton1983 , @greenbeanx3 , @PrettyCherub (and their alters ofc!) , and everyone else at the protree! we love ya'll!!! <3
 
 remember, we are always here to help if you need to vent, this includes to everyone! we'll try to help as best as we can :]
 
@@ -55,6 +47,6 @@ baii!! please remember to check out our strawpages before you go!
 ![17612653224339215782501636962597](https://github.com/user-attachments/assets/da38fceb-d1ee-46bc-a640-80a75c409b3e)![17612653776676575713491507733121](https://github.com/user-attachments/assets/74e34241-53bd-4f4d-bcef-da2133389653)
 
 
-^ Me and Roman btw... if yall even care ^
+^ ME AND MURDOC!! (yknow im 2d because.. i kin him so... YAH ILYSM MUDDS <3 ^
 
 ~ Written by the host, Elliot.
