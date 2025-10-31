@@ -24,7 +24,7 @@ current hyperfixation(s), again, spanning across the entire system: **Gorillaz**
 
 we are all **proshippers**, though we dont ship anything crazy or taboo, we are simply anti-harassment, so please dont harass us over not giving a fuck what other people do.
 
-you'll usually find us around the docks, but we are usually under the protree with our friends.
+you'll usually find us around the docks or gorillaz area, but we are usually under the protree with our friends.
 
 i also feel like i should put this here, we do not support darkshippers, but we DO respect them. they are human beings just like the rest of us and are just trying to cope with everyday issues. before you resort to harassment, think of the person behind the screen. see them for who they are as a person and not for what they engage in, most of them are the sweetest people on the planet. /vpos
 
