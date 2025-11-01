@@ -8,7 +8,7 @@
 
 hey guys wsg we are your local freaks elliot, lotus, red, and saffron! we are the kong studios collective/system. heads up this will be super fucking boring bc i dont feel like putting effort into it
 
-uhhhh we are currently single and not looking for a relationship!! honestly i think i need to mature and fix my mental health before i go into anything serious because uhh... yeah i did kind of feel attached and its hard for me to leave people alone so... yeah im genuinely sorry. my attachment issues ruin every relationship ive ever had so i need to sort out my emotions and stop feeling so jealous, clingy, and just overall overthinking things 24/7. ill try and am trying to be better. thank you to everyone in my life who has changed it positively for a short amount of time, even if it didnt last. this goes for people who are still with me and helping me sort out my emotions too! love you all so much. /p only dating fictional characters rn (ilysfm murdoc)
+this lowkey sounds delusional but im dating murdoc niccals... YEAH THE FREAK. anyways uhhhh yeah! fuck real people bro fictional characters cant hurt me!! LOVE YOU MUDDSSSSSS <3
 
 only ONE of our alters does not play pony town, and that is red. so you unfortunately may not see her unless you ask to meet/chat to her!
 
